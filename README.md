@@ -1,4 +1,4 @@
-## Hi there 👋
+You may call me Leo, but please do not ask for my discord or to friend me if we haven't talked for a bit at least. You may give hugs and cuddles though! Please don't be nervous to say hi or start a conversation, just whisper to me first because I am usually off tab or afk. I'll notice you faster that way.
 
 <!--
 **LeoBears/LeoBears** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
